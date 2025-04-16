@@ -6,7 +6,7 @@ In letzter Zeit erfreuen sich Trading-Plattformen wie Switch Amrix einer **wachs
 
 Ich leite dich zunächst auf meine Seite weiter – dort findest du den offiziellen Anmeldelink zu MiradexTrader.
 
-### ➡️ [Offiziellen Link anzeigen](./l/de.md)
+### ➡️ [Offiziellen Link anzeigen](https://github.com/Janna11Roy/it-tools/blob/main/l/de.md)
 
 ## Zusammenfassung  
 Hier erhalten Sie eine kompakte Übersicht der wichtigsten Punkte zu Switch Amrix. Diese Tabelle fasst die **Schlüsselmerkmale** zusammen, sodass Sie schnell einen Überblick gewinnen.  
